@@ -1,1 +1,1 @@
-# NexusEq
+https://l.facebook.com/l.php?u=https%3A%2F%2Fimg.shields.io%2Fbadge%2FStatus-Capstone%2520Ready-emerald%3Fstyle%3Dfor-the-badge%26fbclid%3DIwZXh0bgNhZW0CMTEAcGRvZgNzcnRjBmFwcF9pZA8yNzUyNTQ2OTI1OTgyNzkAAR6PrLBva2149vvC-UG1OFXVQw0_GYrIqdhceoVTxxw5nwSI42G7N8xVdYG8qQ_aem_Pwnp3ANZ_SPtr-XyXgD_Tw&h=AUATkrWnptkdOAKminPKYkBcPMkDlq8m3QOyJxAWRnhupGKeEfUkql2nyVeFKTMFK8sj8XnnCy8eCc3zbLDDazVSTGvj65RBSFbhtknr04sHwSJuUKDQq4-wO0_YA3WrDQKLCiCG2e9gHxsuwSwW&s=1
